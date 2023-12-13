@@ -10,6 +10,7 @@
 - 2 Tbsp dark chocolate sauce/syrup
 - Whipped cream
 - Chocolate shavings
+- pinch of salt
 
 ## How to Make Mocha Frozen Blended Coffee​
 
